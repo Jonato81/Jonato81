@@ -1,0 +1,5 @@
+- Opa, você está no perfil do Jonato...
+- Sou de Sorriso MT;
+- DEV Principalmente em Python;
+- Conhecimento também em Batch, Dart, HTML e terminal;
+- Contato via WhatsApp: https://wa.me/556696454344.
